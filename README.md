@@ -46,7 +46,7 @@
 
             <h1>
                 "FLY TRAVEL" Sizin Xidmetinizdedir. <br>
-                Tel: 012748578678 <br>
+                Tel: +994504579754 <br>
                 Fax: 776999204321
             </h1>
 
